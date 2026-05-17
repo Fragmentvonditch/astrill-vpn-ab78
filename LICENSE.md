@@ -1,10 +1,10 @@
-高级Astrill扩展 | 专用IP + DNS泄露保护 是最佳 Astrill 扩展，集成 专用IP 和 DNS泄露保护。安全且优化。
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/astrill-vpn-ab78/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
