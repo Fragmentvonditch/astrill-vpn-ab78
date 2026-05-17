@@ -1,10 +1,10 @@
-Premium Astrill VPN Extension | dedicated IP + DNS leak protection is the best Astrill VPN extension with dedicated IP and DNS leak protection. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/astrill-vpn-ab78/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
