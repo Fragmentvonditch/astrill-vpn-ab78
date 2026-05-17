@@ -1,10 +1,10 @@
-Premium Astrill VPN Extensão | IP dedicado + proteção contra vazamento de DNS é o melhor Astrill VPN extensão com IP dedicado e proteção contra vazamento de DNS. Seguro e
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/astrill-vpn-ab78/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
